@@ -23,5 +23,4 @@
 - Preparing for internships & freelancing
 
 ## 📫 Connect With Me
-- LinkedIn: (add later)
-- Email: (add later)
+- Email: sainigurleen13@gmail.com
